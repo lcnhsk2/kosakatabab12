@@ -1,0 +1,2 @@
+# kosakatabab12
+LCN HSK2 KOSAKATA BAB 12
